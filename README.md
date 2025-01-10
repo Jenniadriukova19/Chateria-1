@@ -1,1 +1,0 @@
-Reprezentorium  do zadania chetteri 
